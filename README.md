@@ -27,3 +27,4 @@
 7. Cover and cook on low heat until the rice is tender and the water is absorbed.
 8. Garnish with coriander and mint leaves before serving.
 
+author name:nani
